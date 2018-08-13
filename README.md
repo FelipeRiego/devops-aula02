@@ -1,3 +1,4 @@
 # Chris Hemsworth
-# Jason Momoa
+# Henry Cavil
 # Robert Downey Jr
+# Phill Ivey
